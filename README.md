@@ -13,6 +13,6 @@
 平台内容丰富，定期更新，不论是最新发布的影片还是经典之作，都能满足不同观众的需求。智能推荐系统根据用户的观看历史，推送相关影片，帮助用户快速找到感兴趣的内容。
 同时，平台注重用户隐私保护，采用HTTPS加密技术，确保用户观看时的个人信息安全。总之，日本AV免费平台以其高清、流畅、安全的特点，成为了广大影迷的理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x06 ）</span>
 
 
